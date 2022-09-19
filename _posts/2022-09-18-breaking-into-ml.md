@@ -33,4 +33,4 @@ However, over the years I’ve used the strategy described above to proactively 
 
 Eventually, I’d cultivated enough “credibility” that could be leveraged to do other things, or compounded to generate new areas of expertise. For example, I once cashed in on this reputational capital to convince a bunch of teams to engage in a tricky migration. I had absolutely no formal authority over any of these teams. There was a lot of grumbling, but by this point they all trusted me. The migration ended up being a huge success, and it only increased my reputational capital. Even if it hadn’t worked out, I’d generated enough goodwill that everything would have probably been fine.
 
-Don’t underestimate the combination of focus, compounding and pro-social behaviour. You can use this to manufacture your own luck, and break into new opportunities.
+Don’t underestimate the power of compounding when you have the right combination of focus and pro-social behaviour. You can use this to manufacture your own luck, and break into new opportunities.
